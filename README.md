@@ -1,2 +1,2 @@
-# media_de-_-alunos
+# media_ das_salas
 #
